@@ -1,0 +1,2 @@
+There was a kid who ate a magical fruit and then became a rubber human.
+Then there was aonther kid who found a divine tool called the Magic Cube and ended up becoming the most powerful person in the universe.
